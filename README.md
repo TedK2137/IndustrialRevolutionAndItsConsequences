@@ -1,4 +1,5 @@
 # IndustrialRevolutionAndItsConsequences
 bom
 wenomechainsama tumajarbisaun wifenlooof eselifterbraun
-marek marucha
+marek marucha 
+ 
